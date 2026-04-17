@@ -11,9 +11,15 @@
 
 <img width="20" height="20" alt="knif" src="https://github.com/user-attachments/assets/1298b886-928e-4a01-9be1-b31b4eba9097" />  semi-permaregre due 2 disability . iwc 
 
- often oblivious + blunt . i am naive . <img width="20" height="20" alt="splat" src="https://github.com/user-attachments/assets/2bba2e86-5162-4fdd-9eaa-ea7a00cd631f" />
+ often oblivious + blunt . i am naive .<img width="20" height="20" alt="luvheart" src="https://github.com/user-attachments/assets/6b61e353-c300-47de-ba57-44c326100751" />
+
+ <img width="20" height="20" alt="splat" src="https://github.com/user-attachments/assets/2bba2e86-5162-4fdd-9eaa-ea7a00cd631f" /> often hanging round cg's n friends .. 
+
+  hide me instead of harassing me in whisps plz
 
  
+<img width="20" height="20" alt="hehehev heart 2" src="https://github.com/user-attachments/assets/1d1fd873-bb3c-44a3-98f3-070cb566cabc" /> i am a darkshipper.. im a mentally ill kid who thinks badly,, again iwec!!! 
 
 
 
+<img width="370" height="30" alt="boarder" src="https://github.com/user-attachments/assets/7894b684-7413-44c7-b36c-259a16a0d70a" />
