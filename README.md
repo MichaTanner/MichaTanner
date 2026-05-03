@@ -27,5 +27,3 @@
 <img width="370" height="30" alt="boarder" src="https://github.com/user-attachments/assets/7894b684-7413-44c7-b36c-259a16a0d70a" />
 
 
-
-<img width="256" height="256" alt="Untitled289_20260502210054" src="https://github.com/user-attachments/assets/cd071f67-93f4-44c1-bceb-dfef1d92e3b1" />
