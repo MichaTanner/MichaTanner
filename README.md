@@ -10,7 +10,7 @@
 
  often oblivious + blunt . i am naive .<img width="20" height="20" alt="luvheart" src="https://github.com/user-attachments/assets/6b61e353-c300-47de-ba57-44c326100751" />
 
- <img width="20" height="20" alt="splat" src="https://github.com/user-attachments/assets/2bba2e86-5162-4fdd-9eaa-ea7a00cd631f" />  scared and antisocial . c + h always however^ _ ^;;
+ <img width="20" height="20" alt="splat" src="https://github.com/user-attachments/assets/2bba2e86-5162-4fdd-9eaa-ea7a00cd631f" />  scared and antisocial . c + h always however^-^"
 
  c00lkidd heavykin . not huge on twinsies<img width="20" height="20" alt="IMG_2542" src="https://github.com/user-attachments/assets/19f0edfd-1329-4b05-9f1c-bd0c2323e31a" />
 
