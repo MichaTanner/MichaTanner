@@ -27,3 +27,5 @@
   <img align=center src="https://carcuvorous.carrd.co/assets/images/gallery02/216964e7.png?v=72ce5086">
   <br>
   <br>
+
+<p align=center>  i dont int withs strangers cus cg doesnt allow andn i wont reply okehy... 👀^_^
