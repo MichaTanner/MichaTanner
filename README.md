@@ -27,4 +27,4 @@
   <br>
   <br>
 
-  i dont int with people cus cg doesnt allow andn i wont reply okehy... 👀^_^
+  i dont int withs strangers cus cg doesnt allow andn i wont reply okehy... 👀^_^
