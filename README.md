@@ -14,8 +14,7 @@
   <img src="https://carcuvorous.carrd.co/assets/images/gallery16/75d6d1e0.gif?v=72ce5086">
   $\text{\color{#d92e2e} semi-permaregre due 2 disability . iwc }$
   <br>
-  $\text{\color{#b41515} often oblivious + blunt . i am naive at times . }$
-  <img src="https://carcuvorous.carrd.co/assets/images/gallery16/ee1c4376.gif?v=72ce5086">
+  $\text{\color{#b41515} often oblivious + blunt . i am naiveish . }$  <img src="https://carcuvorous.carrd.co/assets/images/gallery16/ee1c4376.gif?v=72ce5086">
   <br>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery17/fe3d18a1.gif?v=72ce5086">
   $\text{\color{#d92e2e} usually with my cg and/or boyf }$
