@@ -3,7 +3,7 @@
 
   <br>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery20/b7df3e7d.gif?v=72ce5086">
-  $\text{\color{#b41515} kiddy or clemmie . he 𐙚ྀ her  }$
+  $\text{\color{#b41515} kiddy or clemmie . he 𐙚ྀ its  }$
   <img src="https://carcuvorous.carrd.co/assets/images/gallery20/92a12537.gif?v=72ce5086">
   <br>
   <img align=center src="https://i.postimg.cc/Kj0v5ndq/loved.gif">
@@ -26,3 +26,5 @@
   <img align=center src="https://carcuvorous.carrd.co/assets/images/gallery02/216964e7.png?v=72ce5086">
   <br>
   <br>
+    <p align=center>
+    i dont int withs strangers cus cg doesnt allow andn i wont reply okehy... 👀^_^
