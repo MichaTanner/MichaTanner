@@ -1,5 +1,6 @@
 <p align=center>
-  <img align=center src="https://gifcity.carrd.co/assets/images/gallery77/315137e2.png?v=20a350bf">
+  <img align=center <img width="300" alt="IMG_3339" src="https://github.com/user-attachments/assets/9535fb77-c40b-4e8c-8ec9-20bc5aec4c75" />
+
   <br>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery20/b7df3e7d.gif?v=72ce5086">
   $\text{\color{#b41515} kiddy or clemmie . he 𐙚ྀ ask .  }$
@@ -26,5 +27,3 @@
   <img align=center src="https://carcuvorous.carrd.co/assets/images/gallery02/216964e7.png?v=72ce5086">
   <br>
   <br>
-
-  i dont int withs strangers cus cg doesnt allow andn i wont reply okehy... 👀^_^
