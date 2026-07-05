@@ -27,5 +27,5 @@ $\text{\color{#B691A5} usually with my cg and/or boyf }$
   <br>
   <br>
     <p align=center>
-    I love u zukaxrocket ♡ dadson wins
+  
   
