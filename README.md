@@ -14,13 +14,14 @@
    <p align=center>
   $\text{\color{#B691A5} semi-permaregre due 2 disability . iwc }$
   <br>
-  $\text{\color{#FFC5D8} often oblivious + blunt . i am naiveish . }$  <img  
-<br>  <img width="20" alt="IMG_4998" src="https://github.com/user-attachments/assets/c1358529-8ebf-4224-a865-db9f5ce1f9bd" /> <p align=center>
+  $\text{\color{#FFC5D8} often oblivious + blunt . i am naiveish . }$ <img width="20" alt="IMG_4998" src="https://github.com/user-attachments/assets/c1358529-8ebf-4224-a865-db9f5ce1f9bd" />
+<br>
+<p align=center>
 $\text{\color{#B691A5} usually with my cg and/or boyf }$
   <br>
   $\text{\color{#FFC5D8}    i am a darkshipper. i block freely ok? }$
 
-  
+
  <p align=center>
   <img <img width="221"  alt="IMG_4791" src="https://github.com/user-attachments/assets/bc959cc3-8099-4d10-9419-9cf62a6a1934" />
 
