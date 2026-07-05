@@ -1,30 +1,31 @@
 <p align=center>
-  <img align=center <img width="300" alt="IMG_3339" src="https://github.com/user-attachments/assets/9535fb77-c40b-4e8c-8ec9-20bc5aec4c75" />
+  <img align=center <img width="170" h alt="Untitled404_20260704204436" src="https://github.com/user-attachments/assets/b1916969-ee75-4b35-a5fa-c26ae440b914" />
+
 
   <br>
-  <img src="https://carcuvorous.carrd.co/assets/images/gallery20/b7df3e7d.gif?v=72ce5086">
-  $\text{\color{#b41515} kiddy or clemmie . he 𐙚ྀ ask  }$
-  <img src="https://carcuvorous.carrd.co/assets/images/gallery20/92a12537.gif?v=72ce5086">
+  <img width="30" height="20" alt="IMG_4996" src="https://github.com/user-attachments/assets/20373355-6c6d-4aca-8228-5424a1dc36b3" />
+  $\text{\color{#FFC5D8} kiddy or clemmie ⋂⑅⋂ heshe  }$<img width="30" height="20" alt="IMG_4996" src="https://github.com/user-attachments/assets/20373355-6c6d-4aca-8228-5424a1dc36b3" />
+<br
+ <p align=center> <img <img width="60" height="40" alt="IMG_4794" src="https://github.com/user-attachments/assets/f4428b9f-cd2c-4003-a51f-ca976ae4b5b1" />
+<img width="60" height="40" alt="Untitled403_20260704204017" src="https://github.com/user-attachments/assets/ba193bf5-d219-47fe-bd97-1c0ccf8e1594" />
+<img width="60" height="40" alt="IMG_4992" src="https://github.com/user-attachments/assets/ab71f59d-9bdb-4e47-b112-2c4cacaa9154" />
+<img width="60" height="40" alt="IMG_4989" src="https://github.com/user-attachments/assets/64411c33-b675-455e-827a-3d5cbefd9306" />
   <br>
-  <img align=center src="https://i.postimg.cc/Kj0v5ndq/loved.gif">
-  <img align=center src="https://files.catbox.moe/uah3md.gif">
-  <img align=center src="https://i.postimg.cc/zXMqXX5g/silly-goose.gif">
-  <img align=center src="https://files.catbox.moe/wctv5l.gif">
+   <p align=center>
+  $\text{\color{#B691A5} semi-permaregre due 2 disability . iwc }$
   <br>
-  <img src="https://carcuvorous.carrd.co/assets/images/gallery16/75d6d1e0.gif?v=72ce5086">
-  $\text{\color{#d92e2e} semi-permaregre due 2 disability . iwc }$
+  $\text{\color{#FFC5D8} often oblivious + blunt . i am naiveish . }$  <img  
+<br>  <img width="20" alt="IMG_4998" src="https://github.com/user-attachments/assets/c1358529-8ebf-4224-a865-db9f5ce1f9bd" />
+$\text{\color{#B691A5} usually with my cg and/or boyf }$
   <br>
-  $\text{\color{#b41515} often oblivious + blunt . i am naiveish . }$  <img src="https://carcuvorous.carrd.co/assets/images/gallery16/ee1c4376.gif?v=72ce5086">
-  <br>
-  <img src="https://carcuvorous.carrd.co/assets/images/gallery17/fe3d18a1.gif?v=72ce5086">
-  $\text{\color{#d92e2e} usually with my cg and/or boyf }$
-  <br>
-  $\text{\color{#b41515}    i am a darkshipper. i block freely oki? }$
-  <img src="https://carcuvorous.carrd.co/assets/images/gallery16/d83e0912.gif?v=72ce5086">
-  <br>
-  <br>
-  <img align=center src="https://carcuvorous.carrd.co/assets/images/gallery02/216964e7.png?v=72ce5086">
+  $\text{\color{#FFC5D8}    i am a darkshipper. i block freely ok? }$
+
+  
+ <p align=center>
+  <img <img width="221"  alt="IMG_4791" src="https://github.com/user-attachments/assets/bc959cc3-8099-4d10-9419-9cf62a6a1934" />
+
   <br>
   <br>
     <p align=center>
-    i dont int withs strangers cus cg doesnt allow andn i wont reply okehy... 👀^_^
+    I love u zukaxrocket ♡ dadson wins
+  
