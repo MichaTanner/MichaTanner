@@ -19,7 +19,7 @@
 <p align=center>
 $\text{\color{#B691A5} usually with my cg and/or boyf }$
   <br>
-  $\text{\color{#FFC5D8}    i am a darkshipper. i block freely ok? }$
+  $\text{\color{#FFC5D8}    anti harass no dni. i block freely oke? }$
 
 
  <p align=center>
