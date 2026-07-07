@@ -1,5 +1,5 @@
 <p align=center>
-HeShe poly and gay. taken ^_^
+  $\text{\color{#b41515} HeShe poly and gay. taken }$
   <br>
 <p align=center>
 <img width="199" alt="IMG_5142" src="https://github.com/user-attachments/assets/f73c8911-c801-4861-822a-37d1263263e2" />
