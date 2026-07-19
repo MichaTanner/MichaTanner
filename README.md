@@ -1,7 +1,8 @@
 <p align=center>
 $\text{\color{#BE87F4}reGects baby seal. (•⩊• っ)3 }$
 <p align=center>
-  <img width="350" alt="Untitled472_20260719043244" src="https://github.com/user-attachments/assets/648d6718-8521-4082-b728-fd93e03a10e8" />
+  <img width="200" alt="Untitled472_20260719060741" src="https://github.com/user-attachments/assets/c442bf6f-9bcf-45eb-91db-54d84a698432" />
+
 <br>
  $\text{\color{#9352D4} Micha }$ $\text{\color{#713AA7} Or}$  $\text{\color{#8D68B2}Bunnyette }$
   <br>
