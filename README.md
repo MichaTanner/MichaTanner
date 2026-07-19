@@ -11,6 +11,3 @@ $\text{\color{#BE87F4}reGects baby seal. (•⩊• っ)3 }$
 <br>
 <img width="20" height="20" alt="IMG_5829" src="https://github.com/user-attachments/assets/af8d4ef2-7f64-4ee6-8e8f-f12de3a9f0cc" />
 <br>
-<p align=center>
-https://rentry.co/MichaRegect
-<p align=center>https://micharegect.straw.page
