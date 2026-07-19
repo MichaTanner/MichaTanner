@@ -12,4 +12,4 @@ $\text{\color{#BE87F4}reGects baby seal. (•⩊• っ)3 }$
 <br>
 <p align=center>
 https://rentry.co/MichaRegect
-https://micharegect.straw.page
+<p align=center>https://micharegect.straw.page
