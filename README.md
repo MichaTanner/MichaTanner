@@ -14,12 +14,12 @@ Travis $\text{\color{#C9C9C9}Or }$ $\text{\color{#959595}Clemmie!}$ $\text{\colo
 <br>
   <p align=left>
 $\text{\color{#C9C9C9}social awk ,,}$ $\text{\color{#959595} immature . }$ $\text{\color{#505050} DPD }$
-<br>
-   <p align=right>
- <img width="150" alt="IMG_7006" src="https://github.com/user-attachments/assets/5ea31bec-8dc1-4141-9296-ccdf0f6cd34c" />
-
-<details>
+<br><details>
 <summery> 
   hi
 </summery>
+</details>  <p align=right>
+ <img width="150" alt="IMG_7006" src="https://github.com/user-attachments/assets/5ea31bec-8dc1-4141-9296-ccdf0f6cd34c" />
+
+
  
