@@ -14,7 +14,7 @@
 Travis $\text{\color{#C9C9C9}Or }$ $\text{\color{#959595}Clemmie!}$ $\text{\color{#505050} 𓍢ִ໋ ࣪˖ ִֶָ𐂂ִֶָ་༘࿐}$
 <br>
   <p align=center>
-$\text{\color{#C9C9C9}social awk ,,}$ $\text{\color{#959595} immature . }$ $\text{\color{#505050} DPD }$ <img width="20"  alt="IMG_7008" src="https://github.com/user-attachments/assets/9ae057de-a54c-413e-a222-b46a0a251b72" />
+$\text{\color{#C9C9C9}social awk ,,}$ $\text{\color{#959595} immature .  ✧　𓈒 　﹒ }$ $\text{\color{#505050} DPD }$ <img width="20"  alt="IMG_7008" src="https://github.com/user-attachments/assets/9ae057de-a54c-413e-a222-b46a0a251b72" />
 <br>
 <p align=center>
    <img src="https://komarev.com/ghpvc/?username=MichaTanner&style=flat-square&color=B6B9B2&label=friends!" alt="profile view counter" width ="100" align="center">
