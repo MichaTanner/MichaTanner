@@ -5,15 +5,15 @@
  <table>
    <tr>
      <td>
-   “  Make    $\text{\color{#C9C9C9} Me}$ Normal    Next   Time   ,  $\text{\color{#C9C9C9} God }$ . “ ❤︎ᬼ
+ <p align=center>  “  Make    $\text{\color{#C9C9C9} Me}$ Normal    Next   Time   ,  $\text{\color{#C9C9C9} God }$ . “ ❤︎ᬼ
      </td>
    </tr>
  </table>
-<p align=left>
+<p align=center>
 <img width="20" alt="IMG_7007" src="https://github.com/user-attachments/assets/dac0f091-7ea6-4440-bab1-6d31393c4d7b" />
 Travis $\text{\color{#C9C9C9}Or }$ $\text{\color{#959595}Clemmie!}$ $\text{\color{#505050} 𓍢ִ໋ ࣪˖ ִֶָ𐂂ִֶָ་༘࿐}$
 <br>
-  <p align=left>
+  <p align=center>
 $\text{\color{#C9C9C9}social awk ,,}$ $\text{\color{#959595} immature . }$ $\text{\color{#505050} DPD }$ <img width="20"  alt="IMG_7008" src="https://github.com/user-attachments/assets/9ae057de-a54c-413e-a222-b46a0a251b72" />
 <br>
 <p align=center>
